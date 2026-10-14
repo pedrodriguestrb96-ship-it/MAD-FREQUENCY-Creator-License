@@ -98,13 +98,14 @@ To the extent permitted by law, MAD FREQUENCY is not responsible for losses resu
 
 ## 10. Contact and Permission Requests
 
-For paid advertising requests, copyright questions or clarification about whether a track is covered by this license, contact:
+For paid advertising requests, copyright questions or clarification about this license, please contact MAD FREQUENCY through our official Instagram account.
 
-**MAD FREQUENCY**  
-YouTube: https://www.youtube.com/@MADFREQUENCY_MF  
-Email: [Insert official contact email]
+**Instagram:** https://www.instagram.com/madfrequency.mf/
 
 Please include the track title, intended use, platform, campaign details and relevant links in your request.
+
+For paid advertising, you must obtain written authorization from MAD FREQUENCY before using the music in the campaign.
+
 
 ## 11. Final Terms
 
